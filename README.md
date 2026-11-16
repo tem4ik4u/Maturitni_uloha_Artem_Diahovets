@@ -1,1 +1,1 @@
-# Maturitn-_-loha_Artem_Diahovets
+# Maturitni_uloha_Artem_Diahovets
